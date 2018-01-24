@@ -1,4 +1,4 @@
-# Parnell, Braxton (replace with yours)
+# Parnell, Braxton
 List two truths and one lie about you below
 
 1. I play the viola.
